@@ -1,1 +1,0 @@
-# Edimar-pc-3tri-1b
